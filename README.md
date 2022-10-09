@@ -1,0 +1,2 @@
+# Tugas_CheckOut_0110122159_Aulia_Shabrina
+tugas check out
